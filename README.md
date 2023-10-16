@@ -1,2 +1,2 @@
-# satyam is a gay
+# satyam is boy
 gitkabir <br> bangalore
